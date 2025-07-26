@@ -1,8 +1,7 @@
-=jellylemonfish/@三省三觉/Ctime 
-If you know my real name, calling me by my real name is fine. But anonymous please.
-- Statistics MS (keep going)
-- Language: Mandarin/Cantonese/English 中文（简/繁）/英文
-- Amateur illustrator and character designer
+=jellylemonfish
+- Statistics MS (keep going) @ University of Wisconsin-Madison | Mathematics BS @ Stonybrook University
+- Language: Mandarin/Cantonese/English 中文（简/繁）/粤语/英文
+
 ✨Nice to meet you~✨
 
 <!---
