@@ -1,3 +1,5 @@
+![](pic.png)
+
 =jellylemonfish
 - Statistics MS (keep going) @ University of Wisconsin-Madison | Mathematics BS @ Stonybrook University
 - Language: Mandarin/Cantonese/English 中文（简/繁）/粤语/英文
